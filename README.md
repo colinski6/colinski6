@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Colin @colinski6
-- 👀 I’m interested in ... making the world a better place.
+- 👀 I’m interested in ... adding enterprise value.
 - 🌱 I’m currently learning how to ... live.
 - 💞️ I’m looking to collaborate on ... nothing.
 - 📫 How to reach me ... good luck.
